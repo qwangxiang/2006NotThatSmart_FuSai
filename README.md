@@ -1,1 +1,1 @@
-# 2006NotThatSmart_FuSai
+# 200-6-NotThatSmart
